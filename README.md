@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @parushayadav
+- 👀 I’m interested in developing software
+- 🌱 I’m currently learning java, python, SQL.
+- 💞️ I’m looking to collaborate on Cloud based projects.
+- 📫 Reach me onm parushacv@gmail.com
+- 😄 Pronouns: Have common sense please
+- ⚡ Fun fact: I am not that funny
