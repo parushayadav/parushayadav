@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Cloud based projects.
 - 📫 Reach me onm parushacv@gmail.com
 - 😄 Pronouns: Have common sense please
-- ⚡ Fun fact: I am not that funny
+- ⚡ Fun fact: Get the work done
