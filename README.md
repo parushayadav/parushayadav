@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @parushayadav
+- 👋 Hi, I’m @Chidvilas
 - 👀 I’m interested in developing software
 - 🌱 I’m currently learning java, python, SQL.
 - 💞️ I’m looking to collaborate on Cloud based projects.
